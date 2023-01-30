@@ -26,3 +26,51 @@ Curated by AmbitionBox
 11) Using appropriate keywords increases your CV’s visibility. Many recruiters just type keywords on job portals to find CVs.
 
 12) Working professionals should put their experience first, followed by education details. Recruiters want to know how good you're at your work.
+
+
+
+
+
+Here are Top 10 sites to create your
+
+**Resume/CV** for ***FREEEEEE**
+
+1. FlowCV
+
+flowcv.io
+
+2. ResumeRx
+
+rxresu.me
+
+3. Zety: Resume Builder & Career Website
+
+zety.com
+
+4. LiveCareer
+
+livecareer.com
+
+5. ResumeNerd
+
+resumenerd.com
+
+6. Novorésumé
+
+novoresume.com
+
+7. ResumeLab
+
+resumelab.com/in
+
+8. Resume Genius
+
+resumegenius.com
+
+9. MyPerfectResume
+
+myperfectresume.com
+
+10.Indeed.com
+
+indeed.com/create-resume
