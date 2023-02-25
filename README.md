@@ -26,3 +26,17 @@ Curated by AmbitionBox
 11) Using appropriate keywords increases your CV’s visibility. Many recruiters just type keywords on job portals to find CVs.
 
 12) Working professionals should put their experience first, followed by education details. Recruiters want to know how good you're at your work.
+
+### Resume Building Online Resources
+
+
+
+**7 free resume writing websites** that can help you create a professional and eye-catching resume.
+
+* [Canva](https://www.linkedin.com/company/canva/?lipi=urn%3Ali%3Apage%3Ad_flagship3_feed%3BpjE6c829RoWmZJkd2%2B2hWw%3D%3D)
+* [Resume-Now](https://www.linkedin.com/company/resume-now/?lipi=urn%3Ali%3Apage%3Ad_flagship3_feed%3BpjE6c829RoWmZJkd2%2B2hWw%3D%3D)
+* [VisualCV](https://www.linkedin.com/company/visualcv/?lipi=urn%3Ali%3Apage%3Ad_flagship3_feed%3BpjE6c829RoWmZJkd2%2B2hWw%3D%3D)
+* [Novorésumé](https://www.linkedin.com/company/novoresume/?lipi=urn%3Ali%3Apage%3Ad_flagship3_feed%3BpjE6c829RoWmZJkd2%2B2hWw%3D%3D)
+* [MyPerfectResume](https://www.linkedin.com/company/myperfectresume/?lipi=urn%3Ali%3Apage%3Ad_flagship3_feed%3BpjE6c829RoWmZJkd2%2B2hWw%3D%3D)
+* [Resume.com](https://www.linkedin.com/company/resume-com/?lipi=urn%3Ali%3Apage%3Ad_flagship3_feed%3BpjE6c829RoWmZJkd2%2B2hWw%3D%3D)
+* [Zety: Resume Builder & Career website](	https://www.linkedin.com/company/zety-your-resume-builder/?lipi=urn%3Ali%3Apage%3Ad_flagship3_feed%3BpjE6c829RoWmZJkd2%2B2hWw%3D%3D)
