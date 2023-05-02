@@ -1,5 +1,3 @@
-# my-resume-drafts
-
 ## Resume Round Tips
 _Curated by AmbitionBox_
 
